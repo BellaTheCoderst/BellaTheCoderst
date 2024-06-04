@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Isabella
+- 👋 Hi, I’m Celine but everyone calls me Isabella
 - 👀 I’m interested in pokemon,anime,videogames.murder drones etc
 - 🌱 I’m currently learning coding and japanese
 - 💞️ I’m looking to collaborate on idk
